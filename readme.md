@@ -6,4 +6,4 @@
 
  Gostou do curso.. quer mais .. ajuda com uma doaçao, ate um cafe e valido 
 
-
+oii tudo bem 
